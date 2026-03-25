@@ -1,8 +1,8 @@
 ![Keynes Library, Birkbeck College](images/keynes-library.png)
 
-# The Walk Between Reality and Fantasy
+# Your Impact, Our Voice. Welcome to EcoEcho.
 
-## Data Sprint on Generative AI and Fictionality
+## The first circular ecosystem designed for the University of Milan. Track your carbon footprint, exchange resources, and transform our campus into a global sustainability model
 
 ### The Keynes Library, Birkbeck-University of London, January 9–11, 2026
 
